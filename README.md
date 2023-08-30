@@ -5,7 +5,7 @@
 
 
 ## Follow Me
-💼 LinkedIn: https://www.linkedin.com/in/rafael-da-silva-59403124/<br/>
+💼 LinkedIn: https://www.linkedin.com/in/silvagpe/<br/>
 ✉️ Email: silvagpe@gmail.com
 
 
